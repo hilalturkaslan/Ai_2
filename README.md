@@ -1,1 +1,1 @@
- Ai case
+ Ai case study

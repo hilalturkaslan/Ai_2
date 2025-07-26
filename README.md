@@ -1,1 +1,1 @@
- Ai app done case study
+ Ai app for a case study

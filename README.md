@@ -1,1 +1,1 @@
-Ai app for ai continue case study
+Ai app done for ai continue case study

@@ -1,1 +1,1 @@
-Ai app for sample do it is a ai continue case study
+Ai app for sample do then is a continue ai case study
